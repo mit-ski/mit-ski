@@ -2,4 +2,5 @@
 
 ㅤㅤㅤㅤㅤㅤ [strawpage ♡](https://meowblub.straw.page/)
 
-![tamon fukuhara chibi](https://github.com/user-attachments/assets/cdfec92d-b559-40b5-881b-b1f5acbb7c05)
+![2e630fb1-7dd1-4dbe-89ef-1d4d8aa53346](https://github.com/user-attachments/assets/1bcb9463-943c-4f38-be26-14fd9528568e)
+

@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤ ㅤ![](https://komarev.com/ghpvc/?username=mit-ski&color=ff69b4&style=flat-square&label=meows&base=1645)
+ㅤㅤㅤㅤㅤ ㅤ![](https://komarev.com/ghpvc/?username=mit-ski&color=blue&style=flat-square&label=meows&base=1645)
 
 ㅤㅤㅤㅤㅤㅤ [strawpage ♡](https://meowblub.straw.page/)
 

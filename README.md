@@ -1,6 +1,7 @@
-ㅤㅤㅤㅤㅤ        ㅤ  ⠀ ⠀ ![](https://komarev.com/ghpvc/?username=mit-ski&color=blue&style=flat-square&label=.&base=1645)
+ㅤㅤㅤㅤㅤ        ㅤ  ⠀ ⠀ ![](https://komarev.com/ghpvc/?username=mit-ski&color=green&style=flat-square&label=.&base=1645)
 
-ㅤㅤㅤㅤㅤㅤ  ⠀ ⠀ [strawpage](https://meowblub.straw.page/)
+ㅤㅤㅤㅤㅤㅤ  ⠀ ⠀ [strawPage](https://meowblub.straw.page/)
 
 
-![psycho-юотосака](https://github.com/user-attachments/assets/ff6e85b8-e0e7-43eb-b1cd-215f553db428)
+<img width="500" height="500" alt="9d9a37ab-9e22-47c5-a9e7-a874d836e3d2-removebg-preview" src="https://github.com/user-attachments/assets/cf6af563-2afd-4db5-867b-625977703730" />
+
